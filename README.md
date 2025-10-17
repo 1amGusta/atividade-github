@@ -1,2 +1,2 @@
 # atividade-github
-batata
+Sou Gustavo Henrique da 512 e almejo fazer o ensino superior em ES
